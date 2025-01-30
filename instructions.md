@@ -1,5 +1,5 @@
 * chop avocados
 * chop onion
-* squeeze green lime
+* squeeze zesty lime
 * add salt
 * and mix well 
